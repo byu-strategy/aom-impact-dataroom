@@ -20,9 +20,15 @@ So the thirty-year argument about rigor and relevance has, for the first time, p
 
 The AOM Board of Governors has engaged your team to answer one question:
 
-> **Standard 8 is in force and we helped write the thinking behind it. What is AOM's play?**
+> **What should AOM change about its journals, its annual meeting, and its divisions in the next 12 months, so that an AOM member can walk into a promotion review with evidence of impact their dean will accept?**
 
-Not "is impact important." That is settled and AOM helped settle it. The Board wants to know what this organization specifically should do over the next 12 to 24 months, using the levers it actually holds, and how it would know whether any of it worked.
+Read that question carefully, because it fences off three things.
+
+It is not "is impact important." That is settled, and AOM helped settle it. It is not "should schools reward impact." Standard 8 already requires them to. And it is not "what should deans do," because AOM is not a dean and cannot make them do anything.
+
+What is left is the actual engagement: AOM has roughly 18,000 members whose employers are now on the hook for something those members cannot individually produce evidence for. AOM holds the journals they publish in, the meeting they present at, and the divisions they belong to. The Board wants to know what to do with those levers in the next 12 months, and how it would know whether any of it worked.
+
+**The test of a good answer:** a mid-career member at a Standard 8 school could point to something AOM did and say, "that is why my dean counts this."
 
 ## The Board's Mandate (Read This Carefully)
 
